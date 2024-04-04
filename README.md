@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @LUMO530
+- 👀 I’m interested in ... gaming, programming
+- 🌱 I’m currently learning ... C#,c++
+- 📫 How to reach me ... ig: lumonolas, dis: lumonolas
